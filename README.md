@@ -1,0 +1,2 @@
+# Paigre-licenced
+Gestion of Owner laws, Manipuling Order World and Extractiction usely and Eracdiction Man's full Of holer deep Web and scareful dark Web and Some many fuse hold them:Sinful_Olders and hoot taked meeta and covering from neck all them switch Off:pass trow them Out den Off,this born those some many full'ems Killing Nimroshining Rotten Gore Olders criminels of Records. all ready acepted for Paigre and bolt**bolt .Powerful_Gestioning;Every thing on Univers.Powered by Babayaga.
